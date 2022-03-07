@@ -1,7 +1,20 @@
 - 👋 Hi, I’m @blankdciber
 - 👀 I’m interested in the Colobrative code
-- 🌱 I’m currently learning it now
-- 💞️ I’m looking to collaborate on Git and Github
+- 🌱 I’m currently learning it now🐋
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- - 💞️ I’m looking to collaborate on Git and Github
 - 📫 DONT TRY TO REACH MEEE
 - EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE!
 - 
